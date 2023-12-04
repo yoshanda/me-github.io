@@ -1,2 +1,0 @@
-# yoshanda.github.io
-Portfolio
